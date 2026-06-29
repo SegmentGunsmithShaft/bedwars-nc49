@@ -1,4 +1,4 @@
-
+updated bedwars Script is the best bedwars Script, featuring no clip and auto-upgrade. Safe and powerful for all your needs.
 
 
 
